@@ -1,2 +1,2 @@
 # Tandex
-Way
+Welcom tou github faza akbar 🌚
